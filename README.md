@@ -1,0 +1,2 @@
+# topshiriq
+IP sayt topshiriq
